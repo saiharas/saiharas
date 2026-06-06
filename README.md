@@ -12,12 +12,6 @@ c+h is always okay and encouraged, i promise i dont bite. i love making friends,
 <p align="center">
 keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, dont be weird in public chat and have common sense?? i block/hide/report freely <3
 <p align="center">
-i can be very irritable but it's very rarely targeted at a person, so don't assume im mad at you if i act snappy! im usually very friendly!
-<p align="center">
-using the chat can cause me great anxiety sometimes, so there may be times i will only use pony actions, its still absolutely okay to interact at these times, just note i will likely not be talking or only very selective whispers
-<p align="center">
-multifandom, multishipper, rarepair enjoyer
-<p align="center">
 i really REALLY love all things in the racing scene anything to do with racing i adore (formula 1, mf ghost, initial d, street racing aus, fast+furious, etc etc!!!!) i have a lot of racing AU ponies as well as mechanic AU ponies!!!!! 
 <p align="center">
 i have diagnosed severe social anxiety and suspected chronic fatigue (among other things), please be patient with me!

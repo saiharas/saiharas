@@ -22,7 +22,7 @@ do not copy my ponies, ASK for inspo!
 <p align="center">
 you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say who you are/that ur from pt!
 <p align="center">
-DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop media, ai supporters, proshippers, talking shit about people, jokes as an excuse to bully, maga
+DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop fans/supporters, ai supporters, proshippers, talking shit about people, jokes as an excuse to bully, maga
 <p align="center">
 main/fav fandoms atm: identity v, ensemble stars, danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, chainsaw man, the summer hikaru died, sk8 the infinity, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, soul eater, mf ghost, haikyuu, voltron, ETC!!
 <p align="center">

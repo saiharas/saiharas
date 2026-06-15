@@ -6,7 +6,7 @@
 <b><p align="center">
 heya! you can call me cody or any of my kin names! i mainly use he/hymn prns but i don't really have a preference!
 <p align="center">
-16 turning 17; 20+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
+17; 20+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int!!!!
 <p align="center">

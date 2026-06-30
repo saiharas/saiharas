@@ -10,11 +10,11 @@ heya! you can call me cody or any of my kin names! i mainly use he/hymn prns but
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int!!!!
 <p align="center">
-keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. also, it's called safe server for a reason, dont be weird in public chat and have common sense?? i block/hide/report freely <3
+keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. i block/hide/report freely <3
 <p align="center">
 i can get irritated very easily, but it's rarely targeted at any person/individual. i'm usually very friendly. i do struggle a lot with making new friends and being social, so if i seem awkward or avoidant, i apologize.
 <p align="center">
-i really REALLY love all things in the racing scene anything to do with racing i adore (formula 1, mf ghost, initial d, street racing aus, fast+furious, etc etc!!!!) i have a lot of racing AU ponies as well as mechanic AU ponies!!!!! 
+i really love all things in the racing scene (mainly mf ghost + f1 atm but anything racing related gets me very excited), if you see a racer au pony it's probably me, i live laugh love racing aus!!!! 
 <p align="center">
 i have diagnosed severe social anxiety and suspected chronic fatigue (among other things), please be patient with me!
 <p align="center">
@@ -22,9 +22,9 @@ do not copy my ponies, ASK for inspo!
 <p align="center">
 you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say who you are/that ur from pt!
 <p align="center">
-DNI: basic dni criteria, the freak circus, tcoaal, wss, vivziepop fans/supporters, ai supporters, proshippers, talking shit about people, jokes as an excuse to bully, maga
+DNI: basic dni criteria, tfc fandom, tcoaal, wss, vivziepop fans/supporters, ai supporters, proshippers, talking shit about people, jokes as an excuse to bully, maga
 <p align="center">
-main/fav fandoms atm: identity v, ensemble stars, danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, chainsaw man, the summer hikaru died, sk8 the infinity, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, soul eater, mf ghost, haikyuu, voltron, ETC!!
+main/fav fandoms atm: identity v, final fantasy, ensemble stars, danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, chainsaw man, the summer hikaru died, sk8 the infinity, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, soul eater, mf ghost, haikyuu, voltron, ETC!!
 <p align="center">
 be kind to yourself and others!
 <p align="center">

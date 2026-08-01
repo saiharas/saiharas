@@ -14,7 +14,7 @@ keep your drama away from me, i have no interest in it, but i WILL call you out 
 <p align="center">
 i can get irritated very easily, but it's rarely targeted at any person/individual. i'm usually very friendly. i do struggle a lot with making new friends and being social, so if i seem awkward or avoidant, i apologize.
 <p align="center">
-i really love all things in the racing scene (mainly mf ghost + f1 atm but anything racing related gets me very excited), if you see a racer au pony it's probably me, i live laugh love racing aus!!!! 
+i really like racing aus and western aus.... i have a lot of au ponies.. dont be scared to match with me..
 <p align="center">
 i have diagnosed severe social anxiety and suspected chronic fatigue (among other things), please be patient with me!
 <p align="center">

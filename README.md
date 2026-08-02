@@ -18,7 +18,7 @@ i really like racing aus and western aus.... i have a lot of au ponies.. dont be
 <p align="center">
 i have diagnosed severe social anxiety and suspected chronic fatigue (among other things), please be patient with me!
 <p align="center">
-do not copy my ponies, ASK for inspo!
+do not copy my ponies, ASK for inspo! if you do copy me, expect to be publicly called out and posted(only posted if you dont delete it when i ask) !
 <p align="center">
 you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say who you are/that ur from pt!
 <p align="center">

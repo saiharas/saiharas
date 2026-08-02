@@ -14,7 +14,7 @@ keep your drama away from me, i have no interest in it, but i WILL call you out 
 <p align="center">
 i can get irritated very easily, but it's rarely targeted at any person/individual. i'm usually very friendly. i do struggle a lot with making new friends and being social, so if i seem awkward or avoidant, i apologize.
 <p align="center">
-i really like racing aus and western aus.... i have a lot of au ponies.. dont be scared to match with me.. heavy on western janka and swap au janka
+i really like racing aus and western aus.... i have a lot of au ponies.. dont be scared to match w me..  western janka and swap au janka r my favs
 <p align="center">
 i have diagnosed severe social anxiety and suspected chronic fatigue (among other things), please be patient with me!
 <p align="center">

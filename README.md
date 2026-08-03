@@ -12,7 +12,7 @@ c+h is always okay and encouraged, i promise i dont bite. i love making friends,
 <p align="center">
 keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. i block/hide/report freely
 <p align="center">
-i rlly like racing aus and western aus.... i have a lot of au ponies.. dont be scared to match w me..  western janka and swap au janka r my favs
+i rlly like racing aus and western aus.... i have a lot of au ponies.. dont be scared to match w me..  western janka..drool.... 
 <p align="center">
 i have diagnosed severe social anxiety as well as adhd. there are others that i am unable to get diagnosed with at this time, so they are not listed. in general, please be patient with me. i can be be very avoidant at times + experience mood swings easily 
 <p align="center">

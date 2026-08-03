@@ -4,25 +4,23 @@
 
 
 <b><p align="center">
-heya! you can call me cody or any of my kin names! i mainly use he/hymn prns but i don't really have a preference!
+heya! you can call me cody or any of my kin names! i mainly use he/hymn/any prns and dont rly care what gender im seen as (⁠ ⁠´⁠◡⁠‿⁠ゝ⁠◡⁠`⁠)
 <p align="center">
-17; 20+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
+17; 21+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int!!!!
 <p align="center">
-keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. i block/hide/report freely <3
-<p align="center">
-i can get irritated very easily, but it's rarely targeted at any person/individual. i'm usually very friendly. i do struggle a lot with making new friends and being social, so if i seem awkward or avoidant, i apologize.
+keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. i block/hide/report freely
 <p align="center">
 i rlly like racing aus and western aus.... i have a lot of au ponies.. dont be scared to match w me..  western janka and swap au janka r my favs
 <p align="center">
-i have diagnosed severe social anxiety and suspected chronic fatigue (among other things), please be patient with me!
+i have diagnosed severe social anxiety as well as adhd. there are others that i am unable to get diagnosed with at this time, so they are not listed. in general, please be patient with me. i can be be very avoidant at times + experience mood swings easily 
 <p align="center">
-do not copy my ponies, ASK for inspo! if you do copy me, expect to be publicly called out and posted(only posted if you dont delete it when i ask) !
+do NOT copy, post, or colorpick my ponies. ASK for inspo! if we're super close then ur probably an exception for this i just dont want randoms copying my shit
 <p align="center">
 you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say who you are/that ur from pt!
 <p align="center">
-DNI: basic dni criteria, tfc fandom, tcoaal, wss, vivziepop fans/supporters, ai supporters, proshippers, talking shit about people, jokes as an excuse to bully, maga
+DNI: basic dni criteria, tfc fandom, tcoaal, wss, vivziepop fans/supporters (fandom is on thin ice), ai supporters, proshippers, talking shit about people (also if ur a suck-up), maga
 <p align="center">
 main/fav fandoms atm: identity v, final fantasy, ensemble stars, danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, chainsaw man, the summer hikaru died, sk8 the infinity, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, soul eater, mf ghost, haikyuu, voltron, ETC!!
 <p align="center">

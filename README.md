@@ -4,7 +4,7 @@
 
 
 <b><p align="center">
-heya! you can call me cody or any of my kin names! i mainly use he/hymn/any prns and dont rly care what gender im seen as (⁠ ⁠´⁠◡⁠‿⁠ゝ⁠◡⁠`⁠)
+heya! you can call me cody or any of my kin names! he/hymn/any prns + dont care what gender im seen as/referred by (⁠ ⁠´⁠◡⁠‿⁠ゝ⁠◡⁠`⁠)
 <p align="center">
 17; 21+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
@@ -22,7 +22,7 @@ you can add my discord (@kippfish) if you'd like, im a lot more active on there,
 <p align="center">
 DNI: basic dni criteria, tfc fandom, tcoaal, wss, vivziepop fans/supporters (fandom is on thin ice), ai supporters, proshippers, talking shit about people (also if ur a suck-up), maga
 <p align="center">
-main/fav fandoms atm: identity v, final fantasy, ensemble stars, danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, chainsaw man, the summer hikaru died, sk8 the infinity, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, soul eater, mf ghost, haikyuu, voltron, ETC!!
+main/fav fandoms atm: **identity v**, final fantasy, **ensemble stars**, danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, **gachiakuta**, witch hat atelier, riordanverse, ninjago, **blue lock**, **tokyo debunker**, obey me, idols of starlight, chainsaw man, the summer hikaru died, **sk8 the infinity**, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, **link click**, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, crowned in a hundred days, soul eater, mf ghost, haikyuu, voltron, ETC!!
 <p align="center">
 be kind to yourself and others!
 <p align="center">

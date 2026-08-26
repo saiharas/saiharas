@@ -30,7 +30,7 @@ be kind to yourself and others!
 <p align="center">
    carrd ---> https://saihaaras.carrd.co
   ata(SIGN!) ---> https://saiharas.atabook.org
-fav chars+ships ---> https://fishing4kipp.carrd.co
+strawpage ---> wip/remaking sry
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/ec3d540a-cf0e-4039-9f44-ea477d295e1e" width="30%" />

@@ -10,8 +10,6 @@ c+h is always okay and encouraged, i promise i dont bite. i love making friends,
 <p align="center">
 keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. i block/hide/report freely
 <p align="center">
-i have more AU ponies than normal ponies.. i live laugh love aus. western au janka is my fav atm, but im a huge fan of racing aus as well
-<p align="center">
 i have diagnosed severe social anxiety as well as adhd. there are others that i am unable to get diagnosed with at this time, so they are not listed. in general, please be patient with me. i can be be very avoidant at times + experience mood swings easily 
 <p align="center">
 do NOT copy, post, or colorpick my ponies. ASK for inspo! if we're super close then ur probably an exception for this i just dont want randoms copying my shit
@@ -20,7 +18,7 @@ you can add my discord (@kippfish) if you'd like, im a lot more active on there,
 <p align="center">
 DNI: basic dni criteria, minors in the tfc fandom, tcoaal, wss, vivziepop fans/supporters (fandom is on thin ice), ai supporters, proshippers, talking shit about people (also if ur a suck-up), maga
 <p align="center">
-main/fav fandoms atm: identity v, final fantasy, ensemble stars, danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, tokyo debunker, obey me, reverse 1999, idols of starlight, chainsaw man, the summer hikaru died, sk8 the infinity, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, crowned in a hundred days, soul eater, mf ghost, haikyuu, voltron, ETC!!
+main/fav fandoms atm: identity v, final fantasy, ensemble stars, danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, tokyo debunker, persona, obey me, reverse 1999, idols of starlight, chainsaw man, the summer hikaru died, sk8 the infinity, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, crowned in a hundred days, soul eater, mf ghost, haikyuu, voltron, ETC!!
 <p align="center">
 be kind to yourself and others!
 <p align="center">

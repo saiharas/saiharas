@@ -6,7 +6,7 @@ heya! you can call me cody or any of my kin names! he/hymn/any prns + dont care 
 <p align="center">
 17; 21+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
-#nonchalant #mysterious #hopecore
+#nonchalant #mysterious #hopecore #cancelbito2026 #cancelcody2026
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int!!!!
 <p align="center">

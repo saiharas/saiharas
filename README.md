@@ -4,14 +4,13 @@
 <b><p align="center">
 yo yo (⁠ ⁠´⁠◡⁠‿⁠ゝ⁠◡⁠`⁠)
 <p align="center">
-17; 21+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
-<p align="center">
+usually offtab! ships can int but dont b weird abt it! most of my ponies r kins, but not all of them!
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int!!!!
 <p align="center">
 i block hide and report freely
 <p align="center">
-i have diagnosed severe social anxiety, adhd, + more. pls be patient with me. i can be very avoidant + experience mood swings easily. 
+i have diagnosed severe social anxiety + more, please be patient with me when first interacting
 <p align="center">
 do NOT copy, post, or colorpick my ponies. ASK for inspo! if we're super close then ur probably an exception for this i just dont want randoms copying my shit
 <p align="center">

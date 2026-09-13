@@ -12,7 +12,7 @@ i block hide and report freely
 <p align="center">
 i have diagnosed severe social anxiety + more, please be patient with me when first interacting
 <p align="center">
-do NOT copy, post, or colorpick my ponies. ASK for inspo! if we're super close then ur probably an exception for this i just dont want randoms copying my shit
+dont copy my ponies i will know and will call u out publicly lol js dont do it ok? ask for inspo, i'll prolly say yes
 <p align="center">
 you can add my discord (@kippfish) if you'd like, im a lot more active on there, but please say who you are/that ur from pt!
 <p align="center">

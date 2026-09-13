@@ -11,7 +11,7 @@ c+h is always okay and encouraged, i promise i dont bite. i love making friends,
 <p align="center">
 i block hide and report freely
 <p align="center">
-i have diagnosed severe social anxiety, adhd, + more. please be patient with me. i can be be very avoidant + experience mood swings easily. 
+i have diagnosed severe social anxiety, adhd, + more. pls be patient with me. i can be very avoidant + experience mood swings easily. 
 <p align="center">
 do NOT copy, post, or colorpick my ponies. ASK for inspo! if we're super close then ur probably an exception for this i just dont want randoms copying my shit
 <p align="center">

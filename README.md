@@ -2,17 +2,16 @@
 
 
 <b><p align="center">
-heya! you can call me cody or any of my kin names! he/hymn/any prns + dont care what gender im seen as/referred by (⁠ ⁠´⁠◡⁠‿⁠ゝ⁠◡⁠`⁠)
+yo yo (⁠ ⁠´⁠◡⁠‿⁠ゝ⁠◡⁠`⁠)
 <p align="center">
 17; 21+ and 14- dni (if i interact and you're younger/older than these, i likely was not aware!)
 <p align="center">
-#nonchalant #mysterious #hopecore #cancelbito2026 #cancelcody2026
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int!!!!
 <p align="center">
-keep your drama away from me, i have no interest in it, but i WILL call you out if you're being an ass. i block/hide/report freely
+i block hide and report freely
 <p align="center">
-i have diagnosed severe social anxiety as well as adhd. there are others that i am unable to get diagnosed with at this time, so they are not listed. in general, please be patient with me. i can be be very avoidant at times + experience mood swings easily 
+i have diagnosed severe social anxiety, adhd, + more. please be patient with me. i can be be very avoidant at times + experience mood swings easily. 
 <p align="center">
 do NOT copy, post, or colorpick my ponies. ASK for inspo! if we're super close then ur probably an exception for this i just dont want randoms copying my shit
 <p align="center">

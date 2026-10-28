@@ -8,6 +8,8 @@ usually offtab! ships can int but dont b weird abt it! most of my ponies r kins,
 <p align="center">
 c+h is always okay and encouraged, i promise i dont bite. i love making friends, so please int!!!!
 <p align="center">
+infp 1w9 sp1 145
+<p align="center">
 i block hide and report freely
 <p align="center">
 i have diagnosed severe social anxiety + more, please be patient with me when first interacting

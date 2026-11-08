@@ -18,7 +18,7 @@ dont copy my ponies, i will know. u will regret it. ASK for inspo, i'll prolly s
 <p align="center">
 DNI: basic dni criteria, minors in the tfc fandom, tcoaal, wss, vivziepop fans/supporters (fandom is on thin ice), ai supporters, proshippers, talking shit about people (also if ur a suck-up), maga
 <p align="center">
-main/fav fandoms atm: identity v, final fantasy, squid game, atla(show,movie,comics), avatar seven havens, ensemble stars, weak hero class, danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, tokyo debunker, persona, obey me, r1999, bakuman, id invaded, startou, chainsaw man, the summer hikaru died, sk8 the infinity, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, crowned in a hundred days, soul eater, mf ghost, haikyuu, voltron, ETC!!
+main/fav fandoms atm: identity v, final fantasy, squid game, atla(show,movie,comics), avatar seven havens, ensemble stars, weak hero class, alice in borderland, dead end job, danganronpa, my hero academia, hoyoverse, cookie run, merlin bbc, gachiakuta, witch hat atelier, riordanverse, ninjago, blue lock, tokyo debunker, persona, obey me, r1999, bakuman, id invaded, startou, chainsaw man, the summer hikaru died, sk8 the infinity, sasaki to miyano, paradox live, hypnosis mic, twisted wonderland, dr stone, link click, kingdom hearts, dont starve, bungou stray dogs, studio investigrave, crowned in a hundred days, soul eater, mf ghost, haikyuu, voltron, ETC!!
 <p align="center">
 be kind to yourself and others!
 <p align="center">

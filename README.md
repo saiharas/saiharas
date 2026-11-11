@@ -22,10 +22,11 @@ main/fav fandoms atm: identity v, final fantasy, squid game, atla(show,movie,com
 <p align="center">
 be kind to yourself and others!
 <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dijzczo5lfhxmq6mr3nalipx6e&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&mode=dark&bar_color=23a2a4&bar_color_cover=false">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31dijzczo5lfhxmq6mr3nalipx6e&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dijzczo5lfhxmq6mr3nalipx6e&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false&mode=dark">
   </a>
 </p>
+
 
 <p align="center">
    carrd ---> https://saihaaras.carrd.co
